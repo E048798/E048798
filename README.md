@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Hammed Kayode Aemu
 - 👀 My Matric No is E048798
-- 📫 How to reach me ...
+- 📫 How to reach me at +2347015035129
 - 😄 Pronouns: He
 
 
